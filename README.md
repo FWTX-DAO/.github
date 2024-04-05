@@ -16,4 +16,4 @@
 - We have busy lives like everyone else across - God, Family, Work, Fun, and Sports.
 
 ## 📫 How to Connect
-- Visit us at [Fort Worth DAO](https://fwtx.city)! 🌟# .github
+- Visit us at [Fort Worth DAO](https://fwtx.city)! 🌟
